@@ -1,0 +1,10 @@
+# CODE-SHOWCASE-BY-ELIJAH
+ALL CODES ARE HERE
+
+
+
+
+
+FOR HELP JOIN DISCORD SERVER
+
+https://dsc.gg/elijahcyrus
